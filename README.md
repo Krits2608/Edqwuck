@@ -1,1 +1,1 @@
-# Edqwuck
+# Edqwick
